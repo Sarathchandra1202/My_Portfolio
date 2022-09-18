@@ -1,2 +1,2 @@
 # My_Portfolio
-Hi! This is sarath chandra, this is my portfolio 
+Hi! This is Sarathchandra, this is my portfolio 
